@@ -1,4 +1,4 @@
-### Telegram: @NikitaSavchuk1997
+### ➤ Telegram: @NikitaSavchuk1997
 
 ### :hammer_and_wrench: Languages and Tools :
 <div>
